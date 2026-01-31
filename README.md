@@ -1,0 +1,1 @@
+I completed the following three CAD tasks, each treated as a separate and independent exercise, using AutoCAD and Fusion 360. These tasks were carried out to develop drafting accuracy, 3D modeling skills, and understanding of engineering drawing standards.
